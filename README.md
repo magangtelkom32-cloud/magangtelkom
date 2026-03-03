@@ -1,0 +1,2 @@
+# magangtelkom
+untuk magang 
